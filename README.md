@@ -16,4 +16,7 @@ Transfering
 to solar and
 nuclear 
 enegery 
-and cleaner cheaper energy soucres is neccesary to stop this phenomenom in its tracks.
+and cleaner cheaper energy soucres is neccesary to stop 
+this phenomenom in its tracks.
+https://climate.nasa.gov/resources/global-warming-vs-climate-change/
+source
